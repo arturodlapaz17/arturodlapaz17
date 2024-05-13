@@ -2,7 +2,7 @@
 - 👀 Me interesa La Programacion como un medio de crecimiento e intercambio d conocimiento para desarrollar nustro entornor en un mejor lugar.
 - 🌱 Actualmente estoy aprendiendo (PYTHON)
 - 💞️ Busco colaborar en (Cualquier proyecto que me ayude  a crecer como desarrollador).
-- 📫 Cómo contactarme Personas dispuestas a aprender y colaborar.
+- 📫 Contactarme Personas dispuestas a aprender y colaborar.
 - 😄 Pronombres: El
 
 
